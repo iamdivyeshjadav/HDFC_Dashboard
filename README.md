@@ -13,8 +13,9 @@
 > *"Numbers don't just balance a bank — they tell it where to grow."*
 
 ---
-### video link https://drive.google.com/file/d/1vaYavQve6DRa0rIGQluSg_0awKUcZ5f6/view?usp=drive_link
----
+
+### video link https://drive.google.com/file/d/11RvqYNc_vZmHe80rPRk-JFBq5QBozKom/view?usp=sharing
+
 </div>
 
 ---
